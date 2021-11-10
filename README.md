@@ -6,4 +6,3 @@
 
 ## 🌍 Social Media
 - [Discord](https://discordapp.com/users/830398925797326858)
-- 
