@@ -6,3 +6,4 @@
 
 ## 🌍 Social Media
 - [Discord](https://discordapp.com/users/830398925797326858)
+- [İnstagram](https://instagram.com/medical.xyz)
